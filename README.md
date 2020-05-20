@@ -1,0 +1,2 @@
+# Mehmet-Ali-K-l-n-aslan-e-itli-rnekler
+FIRAT ÜNİVERSİTESİ TEKNOLOJİ FAKÜLTESİ YAZILIM MÜHENDİSLİĞİ BÖLÜMÜ YMH112 ALGORİTMA VE PROG.-II DERSİ ÖDEVİ
